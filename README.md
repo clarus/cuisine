@@ -1,4 +1,2 @@
-cuisine
-=======
-
+# Cuisine
 Recettes de cuisine.
