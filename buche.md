@@ -15,8 +15,8 @@ Laisser refroidir.
 
 ## Crème au beurre
 * 100 g de beurre extra-fin ramolli
-* 100 g de sucre glace
 * 1 œuf
+* 100 g de sucre glace
 * cacao en poudre
 
 Mélanger le beurre avec l'œuf à l'aide du fouet électrique (ne pas réchauffer le beurre au micro-ondes). Quand le mélange est parfait, ajouter le sucre glace et le cacao. Mélanger au fouet électrique lentement pendant 5 minutes afin que tout soit homogène.
