@@ -21,6 +21,4 @@ Laisser refroidir.
 
 Mélanger le beurre avec l'œuf à l'aide du fouet électrique (ne pas réchauffer le beurre au micro-ondes). Quand le mélange est parfait, ajouter le sucre glace et le cacao. Mélanger au fouet électrique lentement pendant 5 minutes afin que tout soit homogène.
 
-Recouvrir le gâteau refroidi avec cette crème et décorer.
-
-Laisser refroidir l'ensemble au frigo.
+Recouvrir le gâteau refroidi avec cette crème et décorer. Laisser refroidir l'ensemble au frigo.
