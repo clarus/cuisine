@@ -1,4 +1,4 @@
-# Buche de Noël
+# Bûche de Noël
 
 ## Gâteau roulé
 * 150 g de sucre
