@@ -3,7 +3,7 @@
 ## Gâteau roulé
 * 150 g de sucre
 * 5 œufs
-* 175 g de farine à gâteau (avec farine incorporée)
+* 175 g de farine à gâteau (avec levure incorporée)
 
 Mélanger le sucre avec les jaunes d'œufs. Ajouter après un bon mélange la farine petit à petit, puis les blancs d'œufs montés en neige.
 
